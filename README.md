@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **React, Redux, Express**
 
-- 📫 How to reach me **kamron1007dada@gmail.com**
+- 📫 How to reach me **penis@gmail.com**
 
 - ⚡ Fun fact **I'm uzbek**
 
